@@ -1,4 +1,4 @@
-# 🌸 Livia Kurniawan Portfolio
+# Livia's Portfolio 𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼
 
 Welcome to my personal portfolio website!
 
